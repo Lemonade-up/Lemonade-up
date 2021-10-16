@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Lemonade-up
+-    I’m a student of Polytechnic University of the Philippines
+- 🌱 I’m currently learning Phyton
+- 📫 How to reach me in gmail with wmaglangit1118@gmail.com or in facebook through www.facebook.com/wanjim.maglangit
